@@ -33,5 +33,5 @@
 
 ### 📫 Contact
 - ✉️ Email: jinub080@gmail.com  
-- 🔗 LinkedIn: [linkedin.com/in/jinwoo-park](https://www.linkedin.com/in/jinwoo-park)  
+- 🔗 LinkedIn: [https://www.linkedin.com/in/%EC%A7%84%EC%9A%B0-%EB%B0%95-06b289368/]  
 - 🧪 Notion Portfolio: *요청 시 링크 추가 가능*
